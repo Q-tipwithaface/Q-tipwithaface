@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @Q-tipwithaface
+- 👀 I’m interested in learning and trying new things.
+- 🌱 I’m currently learning how to code.
+- 📫 You can reach me through my gmail.
